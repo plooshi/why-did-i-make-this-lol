@@ -1,2 +1,2 @@
 # techytools
-lol idk 
+This was from something with my friends, don't mind it lol
